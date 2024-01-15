@@ -2,7 +2,7 @@
 - 👀 I’m interested in crochet, folklorico, and violin playing.
 - 🌱 I’m currently learning data science basics.
 - 💞️ I’m looking to collaborate on traditional/beginner level predictive modeling projects.
-- 📫 How to reach me: email - jacquelinemedinasoria@gmail.com | linkedin - 
+- 📫 How to reach me: email - jacquelinemedinasoria@gmail.com | linkedin - https://www.linkedin.com/in/jacquelinemedinasoria/
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I try to donate blood at any chance I get.
 
